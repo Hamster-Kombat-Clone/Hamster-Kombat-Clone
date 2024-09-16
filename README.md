@@ -3,6 +3,9 @@ HAMSTER KOMBAT CLONE § MINI APP
 YOU CAN SEE AND TRY THE MINI APP § https://t.me/cats_kombats_bot or https://catskombats.com/
 FOR BUY CONTACT ME: https://t.me/sicured
 
+![Banner](https://i.imgur.com/LQYx7fR.jpeg(jpg))
+
+
 SCRIPT IS THERE
 
 Enhanced Tap System: Supports up to 5 fingers for more dynamic interaction.
