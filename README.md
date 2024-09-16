@@ -1,6 +1,6 @@
 HAMSTER KOMBAT CLONE § MINI APP 
 
-YOU CAN SEE THE MINI APP § https://t.me/cats_kombats_bot or https://catskombats.com/
+YOU CAN SEE AND TRY THE MINI APP § https://t.me/cats_kombats_bot or https://catskombats.com/
 FOR BUY CONTACT ME: https://t.me/sicured
 
 SCRIPT IS THERE
