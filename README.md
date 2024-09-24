@@ -14,25 +14,9 @@ _______________________________________________
 ![Banner](https://i.imgur.com/hx9g9ec.jpeg(jpg))
 
 
-![11](https://i.imgur.com/PFlNheu.gif(gif))
+![11](https://i.imgur.com/gXoFCX8.gif(gif))
 
 
-![as](https://i.imgur.com/Y8cxfQP.gif(gif))
-
-
-![as](https://i.imgur.com/triVJTT.gif(gif))
-
-
-
-![asd](https://i.imgur.com/gXoFCX8.gif(gif))
-
-
-
-![Banner](https://i.imgur.com/cmvYKGF.gif(gif))
-
-
-
-![Banner](https://i.imgur.com/t09tWKG.gif(gif))
 SCRIPT IS THERE
 
 Enhanced Tap System: Supports up to 5 fingers for more dynamic interaction.
