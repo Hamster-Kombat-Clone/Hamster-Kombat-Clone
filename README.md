@@ -14,17 +14,17 @@ _______________________________________________
 ![Banner](https://i.imgur.com/hx9g9ec.jpeg(jpg))
 
 
-![Banner](https://i.imgur.com/PFlNheu.gif(gif))
+![11](https://i.imgur.com/PFlNheu.gif(gif))
 
 
-![Banner](https://i.imgur.com/Y8cxfQP.gif(gif))
+![as](https://i.imgur.com/Y8cxfQP.gif(gif))
 
 
-![Banner](https://i.imgur.com/triVJTT.gif(gif))
+![as](https://i.imgur.com/triVJTT.gif(gif))
 
 
 
-![Banner](https://i.imgur.com/gXoFCX8.gif(gif))
+![asd](https://i.imgur.com/gXoFCX8.gif(gif))
 
 
 
