@@ -16,7 +16,7 @@ _______________________________________________
 
 ![Banner](https://i.imgur.com/PFlNheu.gif(gif))
 
-![GIF](https://i.imgur.com/bHBZpIi.gif(gif))
+![Banner](https://i.imgur.com/bHBZpIi.gif(gif))
 
 
 
