@@ -13,7 +13,8 @@ FOR BUY CONTACT ME: https://t.me/sicured
 _______________________________________________
 ![Banner](https://i.imgur.com/hx9g9ec.jpeg(jpg))
 
-
+![Banner](https://i.imgur.com/PFlNheu.gif(gif
+))
 SCRIPT IS THERE
 
 Enhanced Tap System: Supports up to 5 fingers for more dynamic interaction.
