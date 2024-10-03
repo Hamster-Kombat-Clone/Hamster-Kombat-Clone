@@ -3,7 +3,7 @@ HAMSTER KOMBAT CLONE § MINI APP
 
 _______________________________________________
 YOU CAN SEE AND TRY
-TRY THE MINI APP ----> https://t.me/cats_kombats_bot
+TRY THE MINI APP ----> https://t.me/cats_kombat_bot
 _______________________________________________
 
 FOR BUY CONTACT ME: https://t.me/sicured
